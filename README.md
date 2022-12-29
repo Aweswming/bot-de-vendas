@@ -13,4 +13,4 @@ Quais formas de pagamento é aceito❓
  - As entregas também são feitas automaticamente pelo bot
 <br>
 
-Discord: [Clique aqui](https://discord.gg/mEmGhZ3F3T)
+Discord: Whiteclass#0001
